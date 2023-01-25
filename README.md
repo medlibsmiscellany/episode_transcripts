@@ -1,6 +1,6 @@
 # Episode Transcripts and More
 
-We are two medical librarians who post a monthly-ish podcast at [Medlibs Miscellany](https://medlibsmiscellany.substack.com/) on Substack.
+We are medical librarians who post a monthly-ish podcast at [Medlibs Miscellany](https://medlibsmiscellany.substack.com/) on Substack.
 
 We post our Episode transcripts here, numbered by episode.
 
