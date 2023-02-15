@@ -1,5 +1,6 @@
 # MM.03: Our path to #medlibs
 ## Carrie and Tracy talk about how they became medical librarians. 
+### Transcript by Jenn Monnin
 Carrie Price: That's cool Tracy. So I think we both came into it, through the back door. [laughs]
 
 Tracy Shields: In a roundabout way. We came at it in a roundabout way, didn't we? 
