@@ -42,7 +42,7 @@ Shields: being a medical librarian. And even becoming a medical librarian I - wh
 
 Shields: So how did - how did you end up becoming and discovering medical librarianship and deciding to be a librarian. 
 
-Price: Yeah, I - I like this question because I think like we said, everybody comes into it uniquely and I feel like I definitely came into it uniquely. I graduated from college around 2000. I was a music Ed Major, and, I didn't really want to do that, but I really didn't know what I wanted to do, so I was just sticking it out. When I was like a junior in college, I hurt my back and I ended up going to physical therapy, and the wonderful physical therapist there hired me on to be a physical therapy technician. 
+Price: Yeah, I - I like this question because I think like we said, everybody comes into it uniquely and I feel like I definitely came into it uniquely. I graduated from college around 2000. I was a music ed major, and, I didn't really want to do that, but I really didn't know what I wanted to do, so I was just sticking it out. When I was like a junior in college, I hurt my back and I ended up going to physical therapy, and the wonderful physical therapist there hired me on to be a physical therapy technician. 
 
 Shields: Oh cool. 
 
